@@ -1,6 +1,6 @@
 # K-Spot Privacy Policy
 
-*Last updated: January 15, 2025*
+*Last updated: July 15, 2025*
 
 ## About K-Spot
 
